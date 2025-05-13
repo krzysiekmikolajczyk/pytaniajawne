@@ -14,9 +14,7 @@ const pageTexts = [
 
 w: - cierpienie towarzyszy człowiekowi od zawsze
 
-- człowiek wielokrotnie próbował odnaleźć źródło/powód cierpienia, często widząc je w swoich czynach,
-
-    które miały zostać ukarane właśnie cierpieniem
+- człowiek wielokrotnie próbował odnaleźć źródło/powód cierpienia, często widząc je w swoich czynach, które miały zostać ukarane właśnie cierpieniem
 
 - występuje cierpienie niezawinione, dla którego powód ciężko znaleźć, przez co od zawsze byto szczególnie intrygujące
 
@@ -38,57 +36,47 @@ t: mimo braku zrozumienia, dlaczego cierpienie dotyka człowieka, ten jest w sta
 
 - autor po stracie Urszulki buntuje sie przeciw bogu, preżywa kryzys światopoglądowy, nie jest w stanie zrozumieć woli boga
 
-- w trenie XIX ma wizję, że jego matka opiekuje się Urszulką W niebie, daje mu to pocieszenie i nadzieję,
+- w trenie XIX ma wizję, że jego matka opiekuje się Urszulką W niebie, daje mu to pocieszenie i nadzieję, przywraca wiarę w boga, akceptuje to, co się wydarzyło.
 
-    przywraca wiarę w boga, akceptuje to, co się wydarzyło.
-
-P: - mimo braku zrozumienia boskiej woli, bohaterowie z bardzo silną wiarą są w stanie zaakceptować cierpienie niezawinione,
-
-    wierząc w słuszność boskich czynów`,
+P: - mimo braku zrozumienia boskiej woli, bohaterowie z bardzo silną wiarą są w stanie zaakceptować cierpienie niezawinione, wierząc w słuszność boskich czynów`,
 
     //////////////////////////////////////////////////////////
 
-  `2. Człowiek wobec niestatosu świata - księga Koheleta
+  `2. Człowiek wobec niestałości świata - Księga Koheleta
 
 W:
 
-- człowich często popada wiluzję, że zdobyuе водастта, stawy, mądrości ταρρωπί mu w życu pewną, stałość
+- człowich często popada w iluzję, że zdobycie bogactwa, stawy, mądrości zapewni mu w życiu pewną stałość
 
-- nie zauwaza, że wrystlue te wartośu może stracić w chwile i że nie pomoga mu W obliczu śmieru jednej
+- nie zauważa, że wszystkie te wartości może stracić w jednej chwili i że nie pomogą mu w obliczu śmierci
 
-t
-
-: pogon za marnymi/premijającymi wartościami może zagrouć i sprawić, że zmarnuje czas dany mu na ziemil dury catowicha
+t: pogoń za marnymi/przemijającymi wartościami może zagrozić duszy człowieka i sprawić, że ten zmarnuje czas dany mu na ziemii.
 
 1: Księga Koheleta
 
-- mędne doświadczyt w życiu wielu ziemskich dóbr -bogactwa, przyjemnośú, zdobył mądrość - dosredt do wniosku, że worystho to jest mamościa premija w obliczu śmierci
+- mędrzec doświadczył w życiu wielu ziemskich dóbr -bogactwa, przyjemności, zdobył mądrość - doszedł do wniosku, że wszystko to jest marnością, przemija w obliczu śmierci
 
-cztowich powinien pneżyć zyue godnie, zgodnie z bozymi prylia- zaniami, pohornie wobec jego decyzji
+- człowiek powinien pneżyć życie godnie, zgodnie z bożymi przykazaniami, pokornie wobec jego decyzji
 
-powinien czerpać radość z lego kruchości codziennego życia, mimo świadomości
+powinien czerpać radość z codziennego życia, mimo świadomości jego kruchości
 
-2: Jan Kochanowski
+2: Jan Kochanowski - Treny
 
-- treny
+- w obliczu straty córki poeta poddaje wątpliwości sens zdobywania wiedzy, gdyż nie pomaga mu ona poradzić sobie z cierpieniem
 
-- w obliczu straty córki poeta poddaje wątpliwości vens zdobywania 2 wiedzy, gdyż nie pomaga mu ona to obliczuém poradzić sobie
+- przechodzi kryzys światopoglądowy, lecz dochodzi do wniosku, że musi zaufać bożym (chociaż niezrozumianym) intencjom, udaje mu się zaakceptować boską wolę,
 
-- prechodzi kryzys światopoglądowy, lecz do cho dzi do wniosku, że musi cierpieniem
+- dostnega premijalność życia i widzi w życiu duchowym prawdziwą wartość.
 
-zaufać bozym (chociaż niezrozumianym) intenyom, udaje mu się zaakceptować wolę, bosha
-
-widzi prawdziwa, wartość -dostnega premijalność życia i widzi w życiu du cho wym
-
-P. Człowiek powinien shupić się w sposób który zapewni na mu tym, by pneryć żyue żyue wieczne, a takze pozwoli raakceptować premijalność życia`,
+P. Człowiek powinien skupić się na tym, by przeżyć życie w sposób który zapewni mu życie wieczne, a takze pozwoli zaakceptować przemijalność życia`,
 
 ///////////////////////////////////////////////////////////////////////////////////////////
 
-  `3. Wizja hońca świata Apokalipsa św. Jana
+  `3. Wizja końca świata - Apokalipsa św. Jana
 
 w:
 
--cetowiek od zawore zastanawiał się, jak będue wyglądat honiec świata, który, jak wrystho co ziemskie, wiedys preminie
+-człowiek od zawsze zastanawiał się, jak będzie wyglądat koniec świata, który, jak wrystho co ziemskie, wiedys preminie
 
 -duty wpływ na postneganie świata miato chnesujaristwo i inne religie
 
