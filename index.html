@@ -3,18 +3,22 @@
 <head>
   <meta charset="UTF-8" />
   <meta name="viewport" content="width=device-width, initial-scale=1.0" />
-  <title>Przewijane strony</title>
+  <title>68 Stron</title>
   <link rel="stylesheet" href="style.css" />
 </head>
-<body>
-  <div class="viewer">
-    <div id="pages" class="pages"></div>
+<body class="dark-mode">
+  <button id="toggle-theme" title="Zmień motyw">🌙</button>
+
+  <div class="pages-wrapper">
+    <div id="pages"></div>
   </div>
-  <div class="pagination">
+
+  <div class="navigation">
     <button id="prev">←</button>
     <span id="page-number">1 / 68</span>
     <button id="next">→</button>
   </div>
+
   <script src="script.js"></script>
 </body>
 </html>
