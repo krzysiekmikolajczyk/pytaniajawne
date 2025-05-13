@@ -54,7 +54,7 @@ t: pogoń za marnymi/przemijającymi wartościami może zagrozić duszy człowie
 
 1: Księga Koheleta
 
-- mędrzec doświadczył w życiu wielu ziemskich dóbr -bogactwa, przyjemności, zdobył mądrość - doszedł do wniosku, że wszystko to jest marnością, przemija w obliczu śmierci
+- mędrzec doświadczył w życiu wielu ziemskich dóbr - bogactwa, przyjemności, zdobył mądrość - doszedł do wniosku, że wszystko to jest marnością, przemija w obliczu śmierci
 
 - człowiek powinien pneżyć życie godnie, zgodnie z bożymi przykazaniami, pokornie wobec jego decyzji
 
