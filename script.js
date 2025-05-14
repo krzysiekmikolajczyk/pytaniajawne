@@ -76,209 +76,191 @@ P. Człowiek powinien skupić się na tym, by przeżyć życie w sposób który 
 
 w:
 
--człowiek od zawsze zastanawiał się, jak będzie wyglądat koniec świata, który, jak wrystho co ziemskie, wiedys preminie
+- człowiek od zawsze zastanawiał się, jak będzie wyglądał koniec świata, który, jak wszystko co ziemskie, wiedys przeminie
 
--duty wpływ na postneganie świata miato chnesujaristwo i inne religie
+- duży wpływ na postrzeganie świata miało chrześcijaństwo i inne religie
 
-t: Oblicza końca świata są różnorodne i zależne od czasów, wlktórych zostaty stworzone
+t: Oblicza końca świata są różnorodne i zależne od czasów, w których zostat=ły stworzone
 
 1: Apokalipsa św. Jana
 
--biblijna wizia hońca świata - petna symboliki
+- biblijna wizja końca świata - pełna symboliki
 
--4 jeźdźcy apokalipsy - wojna, głód, zaraza, śmierć aniotowie, barance, 7 pieczęci
+- 4 jeźdźcy apokalipsy - wojna, głód, zaraza, śmierć; aniołowie, baranek, 7 pieczęci
 
----nastrój
+- nastrój grozy, niepokoju, kataklizmy
 
-grozy, niepokoju, kataliliomy
+- wizja powstania nowego świata, wolnego od zła, zwycięstwa Boga nad wszelkim złem
 
-wizia powstania nowego świata, wolnego od zta, zwycięstwa Boga nad wrellum ztem
+- podniosłość, powaga - prypomnienie, że każdego człowieka dotknie sąd boży
 
-podniosłość, powaga - prypomnienie, że luazdego człowieka dotknie sąd bozy
+- stanowiła inspiracje dla wielu twórców późniejszych epok
 
-stanowiła inspiracje dla wielu twórców późniejszych epok
+2: Czesław Miłosz - Piosenka o końcu świata
 
-R2: Czestaw Mitosz-, Plovenka horicu świata"
+- opis zwyczajnego dnia, który oznacza jednocześnie koniec świata
 
-Se
+- koniec nadchodzi powoli, niespektakularnie, bez epickich wydarzeń
 
-ορισ zwyczajnego dnia, który ornaiza jednocześnie koniec świata
+- ludzie zdają się być obojętni, spokojni, może nieświadomi
 
-honiec nadchodu powole, niespektakularnie, bez epickich wydanen
+- pesymistyczna refleksja, że ludzie nie zdążą prygotować się do nieuchronnego, a nawet nie zauważą tego, co nadchodzi
 
-ludzie zdaja się być obojętni, spokojni, może nieświadomi
+- koniec jest nieuchronny, nie daje nadziei na zbawienie
 
-- pesymistyczna refleksia, że ludzie nie zdara, prygotowal się do nieuchronnego, a nawet nie zauwaza tego, co nadchod
-
-koniec jest nieuchronny nie daje nadziei na zbawienie
-
-P: Biblia starata się odpowiedzieć ludziom na pytania egry stenye lne, a problem bardues artyści późnierszych epok traktowale me ta forycznie, by ukazać co stanowi zagrożenia współczesnych ludzi (obojętność, memoc)`,
+P: Biblia starała się odpowiedzieć ludziom na pytania egzystencjalne, a artyści późniejszych epok traktowali problem bardziej metaforycznie, by ukazać co stanowi zagrożenie dla współczesnych ludzi (obojętność, niemoc)`,
   
 ////////////////////////////////////////////////////////
 
-`4 . Poświęcenie się w imię wyższych wartości - Mitologia
+`4 . Poświęcenie się w imię wyższych wartości - Mitologia Jana Parandowskiego
 
 W:
 
-- altruizm - poświęcenie dla innych
+- altruizm - postawa poświęcenia dla innych
 
-Jana Parandowskiego
+- ludzie poświęcają się w imię różnych wartości - dla kraju, religii i boga
 
-poświęcenie imię innych wartości - dla kraju, religii i boga Wir
+t: poświęcenie się dla wyższych wartości zawsze bylo wyrazem szlachetności, siły i zasługiwało na uznanie
 
-t: poświęcenie się dla wyżorych wartości szla che tności, sity i zasługiwało na zawsze było wyrazem uznanie
+1. Jan Parandowski - Mitologia (mit o Prometeuszu)
 
-1. Jan Parandowski - Mitologia (mit o Prometeuru)
+- tytan, który stworzył człowieka z gliny i nauczył go wielu umiejętności, dał podstawową wiedzę o świecie
 
-- tytan, który stworzył człowieka z gliny nauczyt go wielu umiejętności, dat podstawową wiedzę 0 Świecie
+- dał człowiekowi ogień, który niwelowat ludzką słabość i bezbronność (wykradł ogień z  Olimpu wbrew woli bogów)
 
-- dat człowiekowi ogień, który niwelowat ludzką, słabość i bezbronmost wykradt ogień Olimpu wbrew woli bogów
+- oszukał Zeusa, dzięki czemu ludzie mogli jeść mięso ofiarne, a bogom oddawać tłuszcz i kości
 
-orchat Zeusa, dzięki czemu ludzie mogli jeść mięso ofiarne, oddawać bogom slutadai tturer i hości.
+- puszka pandory - kara dla ludzi
 
-- puszka pandory - hara dla ludzi
-
--Liara dia Prometeura -
-
-prybuty do skat Kauliath, gdwe codziennie prylatywat orcet i wyladat mu wa, trobe, która
-
-*stale od rastata
+- kara dla Prometeusza - przykuty do skał Kaukazu, gdzie codziennie przylatywał orzeł i wyjadał mu wątrobę, która stale odrastała
 
 2. Albert Camus - Dżuma
 
-Doktor na Bernard Rieux tym, by wa lizyć większość chorych umre W Z czasie epidemii honcentruje się jedynie chorobą, mimo świadomości, że
+Doktor Bernard Rieux w czasie epidemii koncentruje się jedynie na tym, by walczyć z chorobą, mimo świadomości, że większość chorych umrze
 
-- naraia siebie na którego pryczyny niebezpieczeństwo w hre Imię walki ze ztem, potrafit zrozumieć
+- naraża siebie na niebezpieczeństwo w imię walki ze złem, którego przyczyny nie potrafi zrozumieć
 
-P
+P:
 
-: Postawy ludzi, którzy potrafią zaryzykować swoim życiem dla dobra innych wielko dusinosi ha wrelhie bezsprecznie wyrazem dobroci bohaterów uzha nie sra cu neli. 1 zastugurquych
-
-Niewiele ludzi jest gotowe no talkie poświęcenie.` ,
+- Postawy ludzi, którzy potrafią zaryzykować swoim życiem dla dobra innych są bezsprecznie wyrazem wielkoduszności i dobroci bohaterów zasługujących na wszelkie uznanie i szacunek. Niewielu ludzi jest gotów na takie poświęcenie` ,
 
 /////////////////////////////////////////////////////////
 
-`5
-
-. Problematyka winy I leary - Mitologia Jana Parandowskiego
-
-W.
-
-- żadna wina nie La moralna porostanie bez hary-uniwersalna prawda - to prawo uwzględniają systemy sądowe stwonone puez ludzi
-
-jest to problematylia podejmowana w literatune od starożytności aż do czasów wspótizesnych
-
-ti kara jest następstwem haider winy, chociaż more prybrać różné formy
-
-1. Mitologia (mit o Syzyfie)
-
-- Sycyf - król Korynta, lutóry cieszyt się szacunkiem bogów
-
-→-zdradzit velkret Zeusa, za co ben skazat go I zaufaniem no śmiert
-
-- Syzyf chciat uniknąc śmiera, uwięzit Tana tova o lochach, pner Co ludzie prestali umierać
-
--Reus uwolnit Tana tova
-
-- Syryf nalazat zonie a później poskarzył się by nie grebata jego ciata, na nia, gdy zna lact się w Hadesie
-
-- dostat pozwolenie, by wrócić na ziemię, by ukarać żonę i żył ponownie, do póli nie prypomnieli sobie o nim bogowie
-
-- dostat leave wieczną kara spottrata go, - musiał właczac hamień pod góre во chuat orιιαί preznaczenie
-
-2. Fiodor Dostojewski - Zbrodnia i hara
-
-Rodion Raskolnikow i jego teoria o nadludziach
-
-Zbrodnia - zabójstwo lech wiarki, w imię dobra ludzkości" a realnie, by prekonać się 0 swojej wyższoś
-
-- wyrzuty sumienia pora dze nia , problemy psychiczne, nieumiejętnośc sobie ze swoim
-
-- hara - obalenie własnej teorii, świadomość, że nie jest wyjgthong. a później talize zoy tha na sy berię
-
-P: kara moze godrić W mied wymiar fizyczny, ale takze cato willia wiześniejsze spojnenie psychicznie, rujnować jego na Swiat` ,
-
-//////////////////////////////////////////////
-
-`6
-
-- . Miłość silniejra niż śmierć Mitologia Jana Parandowskiego
+`5. Problematyka winy i kary - Mitologia Jana Parandowskiego
 
 W:
 
-- sita mitości to temat ponadczasowy, od wieciów podejmowany W literaturze
+- żadna wina nie pozostaje bez kary - uniwersalna prawda moralna
 
-mitość potrafi zmieniać żyue ludilue wai go na lepore, motywo do dobrych czynów, ale również prowadzić do tragedi
+- to prawo uwzględniają systemy sądowe stworzone przez ludzi
+
+- jest to problematyka podejmowana w literaturze od starożytności aż do czasów współczesnych
+
+t: kara jest następstwem każdej winy, chociaż może przybrać różne formy
+
+1. Mitologia (mit o Syzyfie)
+
+- Syzyf - król Koryntu, który cieszył się szacunkiem i zaufaniem bogów
+
+- zdradził sekret Zeusa i zawiódł jego zaufanie, za co bóg skazał go na śmierć
+
+- Syzyf chciał uniknąć śmierci, uwięził Tanatosa w lochach, przez co ludzie przestali umierać
+
+- Zeus w końcu uwolnił Tanatosa
+
+- Syzyf nakazał żonie, by nie grzebała jego ciała, a później poskarżył się na nią gdy znalazł się w Hadesie
+
+- dostał pozwolenie, by wrócić na ziemię, aby ukarać żonę i żył ponownie, dopóki nie przypomnieli sobie o nim bogowie
+
+- dostał wtedy wieczną karę - musiał wtaczać kamień pod górę. Kara spotkała go, ponieważ chciał oszukać przeznaczenie
+
+2. Fiodor Dostojewski - Zbrodnia i kara
+
+- Rodion Raskolnikow i jego teoria o nadludziach
+
+- Zbrodnia - zabójstwo lichwiarki "w imię dobra ludzkości", a realnie, by przekonać się o swojej wyższości
+
+- wyrzuty sumienia, problemy psychiczne, nieumiejętność poradzenia sobie ze swoim czynem
+
+- kara - obalenie własnej teorii, świadomość, że nie jest wyjątkowy, a później także zsyłka na Syberię
+
+P: kara może mieć wymiar fizyczny, ale także godzić w człowieka psychicznie, rujnować jego wcześniejsze spojrzenie na świat.
+
+` ,
+
+//////////////////////////////////////////////
+
+`
+6. Miłość silniejsza niż śmierć - Mitologia Jana Parandowskiego
+
+W:
+
+- siła miłości to temat ponadczasowy, od wieków podejmowany w literaturze
+
+- miłość potrafi zmieniać życie ludzkie na lepsze, motywować do dobrych czynów, ale również prowadzić do tragedii
 
 t:
 
-prawdziwa mitość może stać się dla ludzi ważniejsia od własnego życia, prerwyciętając śmierć
+- prawdziwa miłość może stać się dla ludzi ważniejsza od własnego życia, przezwyciężając śmierć
 
-1. Jan Parandowski - Mitologia (Mit o Orfeuru i Eurydyce)
+1. Jan Parandowski - Mitologia (Mit o Orfeuszu i Eurydyce)
 
-- Orfeur-wybitny pieśnian, wirtuoz gry niesamowity wpływ na ludzi i no lutni, która miata pryro de
+- Orfeusz - wybitny pieśniarz, wirtuoz gry na lutni, która miała niesamowity wpływ na ludzi i przyrodę
 
-- Orfeur pogrążył się zmarła W rozpaczy po śmierci tony, utora uliasrona pnez mię
+- Orfeusz pogrążył się w rozpaczy po śmierci żony, która umarła przez ukąszenie żmii
 
-- by odzyskać zone 1 udat się do Madesu, prelionat Hadesa Persefonę swoją pieśnia mitosug do tony (mitose była dla niego ponad strach pred śmiercia)
+- by odzyskać żonę udał się do Hadesu, przekonał Hadesa i Persefonę swoją pieśnią i miłością do żony (miłość była dla niego ponad strach przed śmiercią)
 
-- miał odzyskać Eurydykę, jeśli wracad nie obejny się ta siebie, gdy będą podziemi. Stęskniony widoku żony obrócił się I utracit Eurydykę bezpowrotnie. Myślat o niej do honica życia, a jego mitose stała się wieczna
+- miał odzyskać Eurydykę, jeśli nie obejrzy się za siebie, gdy będą wracać z podziemii. Stęskniony widoku żony, obrócił się i utracił Eurydykę bezpowrotnie. Myślał o niej do końca życia, a jego miłość stała się wieczna.
 
-2. William Stelespir- „Romeo i Julia"
+2. William Szekspir - Romeo i Julia
 
-jedna z najbardzię znanych histori mitosnych w literaturce
+- jedna z najbardziej znanych historii miłosnych w literaturze
 
-- honflikt między rodzinami Kapuletów i Montelich
+- konflikt między rodzinami Kapuletów i Montekich
 
-slub w Romeo tajemnicy wyrazem niezwykle silnej mitosi
+- ślub w tajemnicy wyrazem niezwykle silnej miłości
 
-wygnany Julia biene lele miasta pnez zabójtwo Tybaltal huge usypiajquy i poronije śmierć, by nie wychodzić Julii)
+- Romeo wygnany z miasta przez zabójstwo Tybalta (kuzyna Julii)
 
-Z
+- Julia bierze lek usypiający i pozoruje śmierć, by nie wychodzić za Parysa
 
-kuzyna
+- Romeo otruwa się, pewny, że Julia umarła
 
-Romeo utruwa się, pewny, że Julia umarta Za Parysa
+- Julia zabija się sztyletem Romea, miłość staje się wieczna, a rodziny się godzą
 
-- Julia zabija się sibylebem Romea, mitość staje się Wieczna, a rodziny się godzą
-
-P: Bohaterowie son się dlo na W stanie stracić życie, poświęcając mitości lub Zwemli hie będąc w stanie doświadczyć` ,
+P: Bohaterowie są w stanie stracić życie, poświęcając się dla miłości lub nie będąc w stanie doświadczyć jej na ziemii
+` ,
 
 ///////////////////////////////////////////////
 
-`7.
+`
+7. Heroizm jako postawa człowieka w zmaganiu się z losem - Iliada Homera
 
-. Heroizm jalko postawa człowielia w zmaganiu się, z lovem
+W: - heroizm - zdolność do wielkich czynów - odwagi, determinacji, walki w imię idei uznawanych za słuszne, nawet gdy sytuacja wydaje się być skazana na porażkę
 
-W: -heroizm- zdolność do wiellich czynów odwagi, determinayi, walki - Iliada Homero w imię idei uznawanych stusine, nawet, gdy sytuaya wydaje się być shazo na
-
-τα t: heroizm staje się tródtem inspiraui dla innych, ho porażkę podziwiających poświęcenie w imię dobrych wartości,
+t: heroizm staje się źródłem inspiracji dla innych, którzy podziwiają poświęcenie w imię dobrych wartości , nawet mimo świadomości nadciągającej przegranej
 
 1. Homer - Iliada
 
-mimo świadomości nadciągającej pregranej
+- Parys porwał Helenę - żonę króla Sparty - Menelaosa, co doprowadza do wojny trojańskiej - między Grekami (Spartanie), a mieszkańcami Troi
 
-- Parys porwat Helenę - zone, króla Sparty - Menelaosa, co doprowadza Greliami, a mieszkańcami Troi do wojny trojańskiel - między (Greliami)
+- Achilles - wojownik Greków, Hektor - bohater Trojański
 
--Achilles - wojownik Gredi, Melitor - bohater Trojański
+- Hektor świadomy, że prawdopodobnie umrze, podejmuje walkę by zachować honor, broniąc Troi, swojego miasta i rodziny.
 
-- Heli tor Swiadomy, że prawdopodobnie umne, podermuje walke by zachować honor, broniąc Troi swojego miasto i rodziny.
+- Achilles walczy, mimo świadomości, że wybiera krótkie życie, decyduje się na walkę i udział w wojnie, ale ważniejsza jest dla niego chwała i pomszczenie swojego przyjaciela - Patroklosa
 
-1
+- Priam udaje się do namiotu Achillesa, by prosić o ciało zabitego Hektora - determinacja i odwaga, by godnie pochować syna
 
-- Achilles walizy, mimo świadomości, że wybiera krótkie żywe deyduja się ho chwata i udział W wojnie, ale ważniejra jest dla niego pomorzenie swojego pryjaciela - Patroklesa
+2. Albert Camus - Dżuma
 
-- Priam udaje się do namiotu Achillesa, by proo prović o ciało zabitego Hektora - determinaya i odwaga, by godnie pochowal syna
+- Bernard Rieux walczy z chorobą mimo świadomości, że większość chorych umrze - postawa heroiczna
 
-2. Albert Camus - Džuma
+- Doktor narażał swoje życie, lecz nie miał wątpliwości co do celowości swoich czynów - celem była walka ze złem, podjęcie działania
 
-- Bernard Rieux walizquy że więkstość ludzi Z umrze chorobą, mimo świadomości, postawa heroiczno-
-
-Doktor narażał swoje życie, lecz nie miat wątpliwości, co do ze celowości swoich czynów - ztem, podjęue działania - celem była walka
-
-egry stenya lizm
-
-P: Heroizm to τα sturne ponad pnede wrystkim podjęcie działań uważanych postawienie wyznawanych wartości wory stho tragicznej sytuayi Inne mimo świadomości` ,
+P: Heroizm to przede wszystkim podjęcie działań uważanych za słuszne, postawienie wyznawanych wartości ponad wszystko inne, mimo świadomości często tragicznej sytuacji
+` ,
 
 ///////////////////////////////////
 
